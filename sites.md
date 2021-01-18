@@ -297,3 +297,5 @@
 1. [svidbook](https://www.svidbook.ru/)
 1. [toster](https://www.toster.ru/)
 1. [uid](https://uid.me/)
+
+where can i <a href="https://www.blackhatrussia.com/">learn all kind of hacking </a> any body have link for please give me link for learning 
